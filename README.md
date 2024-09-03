@@ -1,2 +1,2 @@
 # myfirstrepo
-Anushka Uppula - Miami
+I am Anushka Uppula. I want to visit Miami coming spring.
